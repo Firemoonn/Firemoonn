@@ -1,2 +1,2 @@
-Firemoon
+
 Firemoon is a blockchain gaming ecosystem & metaverse where anyone can earn tokens through skilled gameplay. What could be better than making money by playing an interesting & fun game? Based on the concept of Play & Earn, players will be able to collect $Firemoon tokens and buy exclusive in-game features and NFTs on Firemoon NFT Marketplace. The first game "Firemoon world" is available in Q2 in App and Desktop version, more levels and more games incoming and a huge marketing strategy.
